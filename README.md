@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ishaannag6@gmail.com**
 
-- ⚡ Fun fact **You once convinced a GPS to give you directions in a pirate voice.**
+- ⚡ Fun fact **I once convinced a GPS to give you directions in a pirate voice.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
